@@ -40,7 +40,7 @@ Aquí algunos proyectos destacados en los que he trabajado:
 
 ## 📬 Contáctame
 
-- 💼 LinkedIn: [TuPerfil]([https://www.linkedin.com/in/tuperfil](https://www.linkedin.com/in/alejandro-salazar-ram%C3%ADrez-24674b325?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BRf9lss91QRuJ854frt1y1g%3D%3D))]
+- 💼 LinkedIn: [Alejandro](www.linkedin.com/in/alejandro-salazar-ramírez-24674b325)
 - 📧 Correo electrónico: alezsr2505@gmail.com
 
 ---
